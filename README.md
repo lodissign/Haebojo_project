@@ -4,8 +4,8 @@
 
 태훈 https://docs.google.com/spreadsheets/d/1TU7NGaTEYXlB9lvtrI2h4iJP_eYjDnCkepiZhASYZeE/edit?usp=sharing 
 
-우영
+우영  https://docs.google.com/spreadsheets/d/1k_2qJfpgrSk0p1wY4lqnJd6Ytxj_4lv4pUE8ylfAIUQ/edit?usp=sharing
 
-재경
+재경  https://docs.google.com/spreadsheets/d/1euPz7TwGGPVv1EcNVgLNsmMqlLJ5XC6Ya8aqWHgDR6s/edit?usp=sharing 
 
 소민  https://docs.google.com/spreadsheets/d/1s9u-K4ewAnz-FJe2yVZkkGu-c48yseFLFTx2_o0mYew/edit?usp=sharing
