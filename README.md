@@ -8,5 +8,4 @@
 
 재경
 
-소민  https://docs.google.com/spreadsheets/d/e/2PACX-1vRGheKI9hsJ0UuPcEQ5HKo3PNgjx80Mt2ZzNqCXFrKdHPuWlH3XJ3gvMkEzLS1W1uSI5gYMc3YOPRav/pubhtml
-
+소민  https://docs.google.com/spreadsheets/d/1s9u-K4ewAnz-FJe2yVZkkGu-c48yseFLFTx2_o0mYew/edit?usp=sharing
