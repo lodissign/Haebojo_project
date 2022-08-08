@@ -2,7 +2,7 @@
 
 개인일정 간트차트
 
-태훈 https://docs.google.com/spreadsheets/d/e/2PACX-1vRTXpaWwRyNHJks3K9uCfC7haPatUt9QLhxKN5L4f1RgBD8y04MOhT8ZJLVEv7i3eRb3gZPHXEex54B/pubhtml 
+태훈 https://docs.google.com/spreadsheets/d/1TU7NGaTEYXlB9lvtrI2h4iJP_eYjDnCkepiZhASYZeE/edit?usp=sharing 
 
 우영
 
